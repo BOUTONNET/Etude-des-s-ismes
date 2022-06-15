@@ -1,1 +1,1 @@
-# Etude-des-s-ismes
+# Etude-des-séismes
